@@ -1,1 +1,0 @@
-https://github.com/cactusvpakete/slozhno-sosredotochitsya-ad
